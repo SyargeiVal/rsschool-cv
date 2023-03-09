@@ -1,1 +1,1 @@
-### https://SyargeiVal.github.io/rsschool-cv/cv
+### https://SyargeiVal.github.io/rsschool-cv/
